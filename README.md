@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BREBRE35
-- 👀 I’m interested in ...fucking 
+- 👀 I’m interested in ...fucking my husband
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 
 - 📫 How to reach me ...
 
 <!---
